@@ -1,1 +1,2 @@
 # Tri-2-project-
+PROJECT DESCRIPTION AND SUMMARY 
